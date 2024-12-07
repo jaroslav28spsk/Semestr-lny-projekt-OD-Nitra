@@ -1,0 +1,1 @@
+# Semestr-lny-projekt-OD-Nitra
